@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻Hi i'm Gabriel<br>📒 I am studying for a Bachelor's degree in Information Systems at IFS.<br>📓 Always willing to learn new things.
+👨‍💻Hi i'm Rubens<br>📒 I am studying for a Bachelor's degree in Information Systems at IFS.<br>📓 Always willing to learn new things.
 
  
 ## 🌐 Socials:
